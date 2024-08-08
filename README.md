@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tobxyo
 - 👀 I’m interested in anything IT, gaming, outdoors
 - 🌱 I’m currently learning HTML and CSS
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on about anything to further advance me in IT/life
 - 📫 How to reach me: Mainly via discord, as I don't use other apps much and don't read any of my thousands of emails. My discord is: ntrx.tob
 - 😄 Pronouns: Any, not really bothered
 - ⚡ Fun fact: I've been interested in IT basically my whole life! Before I could even remember stuff! (My sister had to tell me that I was into IT even then cause I didn't know xd). I am 15 as of 2024, and I am a freelancer!
