@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tobxyo
+- 👋 Hi, I’m @Mytinae
 - 👀 I’m interested in anything IT, gaming, outdoors
 - 🌱 I’m currently learning HTML and CSS
 - 💞️ I’m looking to collaborate on about anything to further advance me in IT/life
